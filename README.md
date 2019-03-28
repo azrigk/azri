@@ -1,2 +1,2 @@
 # azri
-mempermudah anda
+mempermudah anda dalam mengenal kami!!
